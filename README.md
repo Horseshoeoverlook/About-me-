@@ -1,8 +1,8 @@
 # About-me-
 This is just a way for you too know about me!
-{E, C, V, L, F, P, L, L, R, K, M <33 } 
-
-I'm Usually By The RDR Spot Above Spawn, As Red Harlow "#1 Dad Avenger" or as any EPIC the musical pony with this githun linked
+{T, C, V, L, F, P, L, L, R, K, M <33 } 
+I LOVE MY BF!! 
+I'm Usually as any EPIC the musical pony with this github linked or MC Jams, Minecraft myths and such. 
 
 ☆ | Name: My Irl Name Is Arthur!
 
