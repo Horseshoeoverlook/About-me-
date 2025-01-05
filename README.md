@@ -49,3 +49,6 @@ Friend Req: PLZ INT!! I Love Making New Friends And Such,
 ════ ⋆★⋆ ════
 
 --- ☆ "Stay Gold, Ponyboy."
+
+![image](https://github.com/user-attachments/assets/b5f7f5c2-181e-4af7-acb8-43af341cd8fe)
+
