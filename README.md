@@ -24,7 +24,7 @@ I'm Usually as any EPIC the musical pony with this github linked or MC Jams, Min
 
 ♡ | Dislikes: Any Annoying Mf I Know At School.
 
-♡ | DNI: Basic DNI Criteria, THOSE Genshin/HSR/HH/HB Fans. || Any TCOAAL Fan Get The Fuck Away From Me. DO NOT COPY MY PONIES. inspo is fine if you ask, but if i see you straight up copying without permission, You are getting blocked. [partially targeted.]
+♡ | DNI: Basic DNI Criteria, THOSE Genshin/HSR/HH/HB Fans. || Any TCOAAL Fan Get The Fuck Away From Me. copying my ponies is a no-go. don't do it gang [partially targeted.]
 
 ♡ | INT: C + H || The Normal Fans Of The Ones In DNI, People With The Same Interests And Such, Normal People In General. Most Of Everyone In The Safe Server.
 
