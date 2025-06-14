@@ -1,11 +1,11 @@
 # About-me-
 This is just a way for you too know about me!
-{T, C, V, L, F, P, L, L, R, K, M <33 } 
+{T<3,R,L,L,F,P,K,R,V} 
 I LOVE MY BF!! 
 
-I'm Usually as any EPIC the musical pony with this github linked or MC Jams, Minecraft myths and such. 
+I'm Usually as any minecraft media pony with this github linked
 
-☆ | Name: My Irl Name Is Arthur!
+☆ | Name: My real Name Is Arthur
 
 ☆ | Nicknames: Metalsphere -My Usual Username In Anything- || Artie
 
@@ -22,21 +22,17 @@ I'm Usually as any EPIC the musical pony with this github linked or MC Jams, Min
 
 ♡ | General Likes: Horror, Candy, Tea, Staying Up Late, Breakfast Burritos,
 
-♡ | Dislikes: Any Annoying Mf I Know At School.
+♡ | Dislikes: Any Hoe I Know At School.
 
 ♡ | DNI: Basic DNI Criteria, THOSE Genshin/HSR/HH/HB Fans. || Any TCOAAL Fan Get The Fuck Away From Me. copying my ponies is a no-go. don't do it gang [partially targeted.]
 
 ♡ | INT: C + H || The Normal Fans Of The Ones In DNI, People With The Same Interests And Such, Normal People In General. Most Of Everyone In The Safe Server.
 
-"𝚂𝚑𝚎 𝚝𝚘𝚘𝚔 𝚖𝚢 𝚏𝚒𝚗𝚐𝚎𝚛𝚜 𝚝𝚘 𝚑𝚎𝚛 𝚖𝚘𝚞𝚝𝚑."
-
-
-
 
 
 ------ Just To Know ☆ -.°˖⋆ ℧ 𓃗 .°˖⋆
 
-Job: I Currently Work As A Bison Ambassador! Basically I Just Yap To Visitors About The Prairie And The Bison That Go Along With It. For 2-4 Hours Every Sat-Sunday.
+Job: I'm Mostly Doing Side-Jobs Rn
 
 ════ ⋆★⋆ ════
 
@@ -49,6 +45,4 @@ Friend Req: PLZ INT!! I Love Making New Friends And Such,
 ════ ⋆★⋆ ════
 
 --- ☆ "Stay Gold, Ponyboy."
-
-![image](https://github.com/user-attachments/assets/b5f7f5c2-181e-4af7-acb8-43af341cd8fe)
 
