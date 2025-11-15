@@ -1,34 +1,31 @@
 # About-me-
 This is just a way for you too know about me!
-{T<3,R,L,L,F,P,K,R,V} 
+{T<3,R,R,L,L,F,S,E} 
 I LOVE MY BF!! 
 
 I'm Usually as any minecraft media pony with this github linked
 
-☆ | Name: My real Name Is Arthur
+☆ | Name: Hero!
 
-☆ | Nicknames: Metalsphere -My Usual Username In Anything- || Artie
+☆ | Nicknames: be creative idm!!
 
 ☆ | Pronouns: He/Him!
 
 ☆ | Gender: Trans FTM
 
-"𝙸 𝚜𝚕𝚎𝚎𝚙 𝚜𝚘 𝙸 𝚌𝚊𝚗 𝚜𝚎𝚎 𝚢𝚘𝚞 '𝚌𝚊𝚞𝚜𝚎 𝙸 𝚑𝚊𝚝𝚎 𝚝𝚘 𝚠𝚊𝚒𝚝 𝚜𝚘 𝚕𝚘𝚗𝚐.."
-
+"Oh, Golden boy, don't act like you were kind."
 
 ------ Likes/Dislikes ☆ -.°˖⋆ ℧ 𓃗 .°˖⋆
 
-♡ | Fandoms: RDR1-2/Revolver, MGS, TF2, AHIT, COD, Cyberpunk 2077, PKM, FE3H, Fallout, Skyrim, Markiplier/Jacksepticeye Egos, The Outsiders.
+♡ | Fandoms: RDR1-2/Revolver, MGS, TF2, AHIT, COD, Cyberpunk 2077, PKM, FE3H, Fallout, Skyrim, Dispatch.
 
-♡ | General Likes: Horror, Candy, Tea, Staying Up Late, Breakfast Burritos,
+♡ | General Likes: Sleeping.
 
-♡ | Dislikes: Any Hoe I Know At School.
+♡ | Dislikes: Anybody I Know At School.
 
 ♡ | DNI: Basic DNI Criteria, THOSE Genshin/HSR/HH/HB Fans. || Any TCOAAL Fan Get The Fuck Away From Me. copying my ponies is a no-go. don't do it gang [partially targeted.]
 
-♡ | INT: C + H || The Normal Fans Of The Ones In DNI, People With The Same Interests And Such, Normal People In General. Most Of Everyone In The Safe Server.
-
-
+♡ | INT: C + H || The Non-problematic Fans Of The Ones In DNI, People With The Same Interests And Such,Most Of Everyone In The Safe Server.
 
 ------ Just To Know ☆ -.°˖⋆ ℧ 𓃗 .°˖⋆
 
@@ -44,5 +41,5 @@ Friend Req: PLZ INT!! I Love Making New Friends And Such,
 
 ════ ⋆★⋆ ════
 
---- ☆ "Stay Gold, Ponyboy."
+--- ☆
 
