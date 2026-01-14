@@ -1,7 +1,5 @@
 # About-me-
 This is just a way for you too know about me!
-{T<3,R,R,L,L,F,S,E} 
-I LOVE MY BF!! 
 
 I'm Usually as any minecraft media pony with this github linked
 
