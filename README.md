@@ -7,9 +7,9 @@ I'm Usually as any minecraft media pony with this github linked
 
 ☆ | Nicknames: be creative idm!!
 
-☆ | Pronouns: He/Him!
+☆ | Pronouns: He/They!
 
-☆ | Gender: Trans FTM
+☆ | Gender: Masc Non-binary 
 
 "Oh, Golden boy, don't act like you were kind."
 
@@ -17,27 +17,26 @@ I'm Usually as any minecraft media pony with this github linked
 
 ♡ | Fandoms: RDR1-2/Revolver, MGS, TF2, AHIT, COD, Cyberpunk 2077, PKM, FE3H, Fallout, Skyrim, Dispatch.
 
-♡ | General Likes: Sleeping.
+♡ | Hobbies: Drawing, Painting, writing, adventuring/hiking, bone collecting.
 
-♡ | Dislikes: Anybody I Know At School.
+♡ | Dislikes: bullies! 
 
-♡ | DNI: Basic DNI Criteria, THOSE Genshin/HSR/HH/HB Fans. || Any TCOAAL Fan Get The Fuck Away From Me. copying my ponies is a no-go. don't do it gang [partially targeted.]
+♡ | DNI: Basic DNI Criteria !! 
 
-♡ | INT: C + H || The Non-problematic Fans Of The Ones In DNI, People With The Same Interests And Such,Most Of Everyone In The Safe Server.
+♡ | INT: C + H!!!! i completely do not mind!
 
 ------ Just To Know ☆ -.°˖⋆ ℧ 𓃗 .°˖⋆
 
-Job: I'm Mostly Doing Side-Jobs Rn
-
+Job: Bison Ambassador in training !!
 ════ ⋆★⋆ ════
 
------- Boundaries ☆ -"𝙸𝚃𝚂 𝙹𝙾𝙷𝙽 𝙼𝙰𝚁𝚂𝚃𝙾𝙽 𝙼𝙸𝙲𝙰𝙷."-
+------ Boundaries ☆ 
 
 Dms: Either Talk To Me Face To Face or In Whisp, Either Is Fine!,
 
-Friend Req: PLZ INT!! I Love Making New Friends And Such,
+Friend Req: PLEASE!! I Love Making New Friends And Such,
 
 ════ ⋆★⋆ ════
 
 --- ☆
-
+-"𝙸𝚃𝚂 𝙹𝙾𝙷𝙽 𝙼𝙰𝚁𝚂𝚃𝙾𝙽 𝙼𝙸𝙲𝙰𝙷."-
