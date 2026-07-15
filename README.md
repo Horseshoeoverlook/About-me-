@@ -3,29 +3,27 @@ This is just a way for you too know about me!
 
 I'm Usually as any minecraft media pony with this github linked
 
-☆ | Name: Hero!
+☆ | Name: Hero, Simon, Wil ! 
 
 ☆ | Nicknames: be creative idm!!
 
 ☆ | Pronouns: He/They!
 
-☆ | Gender: Masc Non-binary 
+☆ | Identity: Abrosexual biromantic!
 
-"Oh, Golden boy, don't act like you were kind."
+------ Likes/Dislikes ☆ 
 
------- Likes/Dislikes ☆ -.°˖⋆ ℧ 𓃗 .°˖⋆
-
-♡ | Fandoms: RDR1-2/Revolver, MGS, TF2, AHIT, COD, Cyberpunk 2077, PKM, FE3H, Fallout, Skyrim, Dispatch.
+♡ | Fandoms: RDR1-2/Revolver, MGS, TF2, AHIT, COD, Cyberpunk 2077, PKM, FE3H, Fallout, Skyrim, Dispatch, etc !
 
 ♡ | Hobbies: Drawing, Painting, writing, adventuring/hiking, bone collecting.
 
-♡ | Dislikes: bullies! 
+♡ | Dislikes: rude people! 
 
 ♡ | DNI: Basic DNI Criteria !! 
 
 ♡ | INT: C + H!!!! i completely do not mind!
 
------- Just To Know ☆ -.°˖⋆ ℧ 𓃗 .°˖⋆
+------ Just To Know ☆ -.°
 
 Job: Bison Ambassador in training !!
 ════ ⋆★⋆ ════
@@ -39,4 +37,3 @@ Friend Req: PLEASE!! I Love Making New Friends And Such,
 ════ ⋆★⋆ ════
 
 --- ☆
--"𝙸𝚃𝚂 𝙹𝙾𝙷𝙽 𝙼𝙰𝚁𝚂𝚃𝙾𝙽 𝙼𝙸𝙲𝙰𝙷."-
